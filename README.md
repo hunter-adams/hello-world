@@ -7,3 +7,6 @@ Peace
 
 
 This is my secondary attempt, solo this time. 
+
+
+Alrihty, I've gotten the hang of this. Attmpt #3.
